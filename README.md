@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @laurinhagamer560
 - 👀 I’m interested in games
 - 🌱 I’m currently learning how to play games
-- 💞️ I’m looking to collaborate on \fabinhogamer560
+- 💞️ I’m looking to collaborate on @fabinhogamer560
 - 📫 How to reach me in the games
 - 😄 Pronouns: ga/mer
 - ⚡ Fun fact: i like to play video games
